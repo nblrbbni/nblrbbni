@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @nblrbbni
-- 👀 I’m interested with Freya Jayawardana
 - 🌱 I’m currently learning in SMK TI BAZMA
 - 📫 How to reach me? on Instagram @nblrbbni
 
